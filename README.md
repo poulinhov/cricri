@@ -1,2 +1,1 @@
-Dona mi amor 
-
+el profe es un chupa pija
